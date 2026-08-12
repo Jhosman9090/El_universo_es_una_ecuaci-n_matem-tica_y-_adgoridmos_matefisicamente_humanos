@@ -1,0 +1,2 @@
+# El_universo_es_una_ecuaci-n_matem-tica_y-_adgoridmos_matefisicamente_humanos
+El_universo_es_una_ecuación_matemática_y _adgoridmos_matefisicamente_humanos
